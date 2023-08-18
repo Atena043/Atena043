@@ -15,4 +15,4 @@
 Qualquer dúvida entre em contato
 <a href="mailto:XXXXXXX@escola.pr.gov.br" target="_blank"><img src="https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white" target="_blank"/></a>
 
-[](https://media.tenor.com/e-jHlsRKphEAAAAC/flamengo-futebol.gif)
+[](https://media.tenor.com/0G8qp95z8isAAAAd/deixa-eu-dormir-let-me-sleep.gif)
